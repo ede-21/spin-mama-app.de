@@ -91,7 +91,7 @@ folgenden Abschnitte bieten Ihnen detaillierte Einblicke untergliedert
 in Vorteile, Nachteile, Bonusstrategien, Design, KYC,
 Zahlungsabwicklung, Software und weitere wichtige Themen. So erfahren
 Sie Schritt für Schritt, wie das Casino arbeitet, welche Leistungen es
-bietet und was aus den zahlreichen **spin mama review** über dieses
+bietet und was aus den zahlreichen **[Spin mama](https://spinmamas.com "Spin mama") review** über dieses
 Angebot zu entnehmen ist. Außerdem können Sie sich über die neuesten
 Trends der **spinmama app** informieren und erhalten Tipps, die aus den
 langjährigen **spinmama erfahrungen** resultieren.
