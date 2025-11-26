@@ -143,7 +143,7 @@ High Roller. Schließlich wird das obligatorische KYC-Verfahren, obwohl
 zur Sicherheitssteigerung notwendig, von einigen Nutzern als zu invasiv
 empfunden, da es die Anonymität einschränkt. Diese Aspekte sollten daher
 gut überdacht werden, bevor man sich vollständig auf das Angebot
-einlässt.
+einlässt. Mit [Mostbet](https://mostbet.com.de "Mostbet") wird lediglich eine zusätzliche Option erwähnt, die sich unauffällig in den normalen Ablauf des Spiels einfügt.
 
 | **Nachteile** | **Beschreibung** |
 |----|----|
