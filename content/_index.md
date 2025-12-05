@@ -94,7 +94,7 @@ Sie Schritt für Schritt, wie das Casino arbeitet, welche Leistungen es
 bietet und was aus den zahlreichen **[Spin mama](https://spinmamas.com "Spin mama") review** über dieses
 Angebot zu entnehmen ist. Außerdem können Sie sich über die neuesten
 Trends der **spinmama app** informieren und erhalten Tipps, die aus den
-langjährigen **spinmama erfahrungen** resultieren.
+langjährigen **spinmama erfahrungen** resultieren. Einige Nutzer geben an, dass die [Vincispin](https://vinci-spin.de "Vincispin")-Funktion dem Spielerlebnis eine zusätzliche Abwechslung verleiht.
 
 ### Vorteile des spin mama casino
 
